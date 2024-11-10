@@ -7,3 +7,5 @@ this is my react practice section. over here i will upload all
 
 react is so cool. i'll upload regularly to maintain
 a streak. ok sounds cool
+
+i lost
