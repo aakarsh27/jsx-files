@@ -9,3 +9,5 @@ react is so cool. i'll upload regularly to maintain
 a streak. ok sounds cool
 
 i lost my streak because i wasn't having my laptop
+
+my charger
