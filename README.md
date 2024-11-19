@@ -10,4 +10,4 @@ a streak. ok sounds cool
 
 i lost my streak because i wasn't having my laptop
 
-my charger is broken now
+my charger is broken now so i
