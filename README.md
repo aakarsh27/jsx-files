@@ -14,3 +14,4 @@ my charger is broken now so i dont use my laptop v frequently
 and it makes me sad
 
 im really sad that i am unable to use it
+
