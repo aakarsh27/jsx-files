@@ -15,4 +15,4 @@ and it makes me sad
 
 im really sad that i am unable to use it
 
-UPDATE: i got a new laptop so fun cod
+UPDATE: i got a new laptop so fun coding n
